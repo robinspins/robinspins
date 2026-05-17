@@ -12,11 +12,11 @@ ${\textsf{\color{#5985ad} ◞୨ }}$ <img src="https://private-user-images.githu
   <br>
 </p>
   <p align="center">
- <img src="https://64.media.tumblr.com/f9e26aedd6b12d1521935ed56e905a00/eae48ac063ba8aa4-15/s2048x3072/a3fd194c5ef54d9796855041de5cef12e530208e.pnj" width="200" height="400"> ${\textsf{\color{#2c557b}Radio ﹌ 19 ⌒⌒}}$
+  ${\textsf{\color{#2c557b}Radio ﹌ 20 ⌒⌒}}$
    <br>
-${\textsf{\color{#2c557b}read links ﹀}}$ <img src="https://64.media.tumblr.com/f9e26aedd6b12d1521935ed56e905a00/eae48ac063ba8aa4-15/s2048x3072/a3fd194c5ef54d9796855041de5cef12e530208e.pnj" width="200" height="400"> ${\textsf{\color{#2c557b} ७ c+h welcome}}$
+${\textsf{\color{#2c557b}read links ﹀}}$  ${\textsf{\color{#2c557b} ७ c+h welcome}}$
     <br>
-${\textsf{\color{#2c557b}ততত usually offtab ꘏ adhd bpdtistic}}$ <img src="https://64.media.tumblr.com/f9e26aedd6b12d1521935ed56e905a00/eae48ac063ba8aa4-15/s2048x3072/a3fd194c5ef54d9796855041de5cef12e530208e.pnj" width="200" height="400">
+${\textsf{\color{#2c557b}ততত usually offtab ꘏ adhd}}$ 
   <br>
 </p>
 <p align="right">
